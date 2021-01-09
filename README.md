@@ -1,0 +1,2 @@
+# Hello-world
+Hey Guys i am new in Github your friend i hope so you ll like my post and stuff , so i requested you plz join my BLOG , https://mirzawaseembaig.blogspot.com , and my face book page . newstimehd tv channel , and youtube channel, by email mirzawaseemahsenbaig@gmail.com i ll share my whatsapp group link i think you must enjoy the pakistani social media fun and news , thanks and best regards , you may contact on email > bluemoon132@gmial.com > wish you all the best , 
